@@ -2,9 +2,10 @@
 
 # 正在用的机场
 
-## [西部数据](https://fuqing.cz/aff.php?aff=527) 20块200g一个月
-## [prpr](https://prpr.96110.cn.com/aff.php?aff=10276)  10块50g一个月，或者15块300g一个月
-    主力机场
+## [西部数据](https://fuqing.cz/aff.php?aff=527) 
+    主力机场 20块200g一个月，现在性价比最高的机场
+## [prpr](https://prpr.96110.cn.com/aff.php?aff=10276) 
+    10块50g一个月，或者15块300g一个月。日本ping低的节点挂了  使用节点挂的比较多  但是一直有可以用的节点。需要换节点 不适合我这种懒人
 ## [速蛙云](https://i.sw12.icu/hVl4)
     备用机场 57一年每月15g流量。暂不推荐当主力机场 2022.05月调了一次价格 割了一个v1用户权益 改动感觉有点频繁了
 ## [xfss](https://xf.gl/#/register?code=wvZkUq0Y)
@@ -18,9 +19,13 @@
 
 # 我使用过的机场
 ## [薯条](https://sgi.anycast.gay/auth/register?code=4qIV)
+    涨价，性价比低了
 ## [魅影极速](https://docs.nameless13.com/kejin)
+    涨价，对我来说价格高了
 ## Amy
+    对我来说价格高了
 ## 海豚湾
+    性价比比较低
 
 # 所有机场都是一分价格一分货，按自己需求买就好了。
 # 我是现在使用机场每月不能超过20元
