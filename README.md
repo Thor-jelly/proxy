@@ -2,6 +2,7 @@
 
 # 正在用的机场
 
+## [西部数据](https://fuqing.cz/aff.php?aff=527) 20块200g一个月
 ## [prpr](https://prpr.96110.cn.com/aff.php?aff=10276)  10块50g一个月，或者15块300g一个月
     主力机场
 ## [速蛙云](https://i.sw12.icu/hVl4)
