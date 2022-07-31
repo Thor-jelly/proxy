@@ -4,9 +4,9 @@
 
 ## [西部数据](https://fuqing.cz/aff.php?aff=527) 
    主力机场 20块200g一个月。
-## [prpr](https://prpr.96110.cn.com/aff.php?aff=10276) 
+## [prpr](https://prpr.96110.cn.com/aff.php?aff=10276) 最近一直被打
     主力机场 10块50g一个月，或者15块300g一个月。prpr最近一阵子不太稳定 已换到西部
-## [速蛙云](https://i.9cvbx.top/hVl4)
+## [速蛙云](https://i.9cvbx.top/hVl4) 暂时官网失联。等后续
     备用机场 57一年每月15g流量。暂不推荐当主力机场 2022.05月调了一次价格 割了一个v1用户权益 改动感觉有点频繁了
 ## [xfss](https://xf.gl/#/register?code=wvZkUq0Y)
     零时机场防失联。10块120g流量不限时防失联不错。
