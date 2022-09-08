@@ -13,7 +13,7 @@
 ## [xfss](https://xf.gl/#/register?code=wvZkUq0Y) 是真的便宜，我买的是10块120g流量不限时间。试用可以试试1块钱17g流量 或者 7块150g流量
 
 # 我使用过的机场
-## [速蛙](https://i.9cvbx.top/hVl4) v1 一年57一个月15g流量 需要抢 年付备用很不错  已跑
+## ～[速蛙](https://i.9cvbx.top/hVl4) v1 一年57一个月15g流量 需要抢 年付备用很不错  已跑～
 
 ## [prpr](https://prpr.96110.cn.com/aff.php?aff=10276)  10块50g一个月当备用很不错，或者15块300g一个月 最近一直被打放弃了
 
