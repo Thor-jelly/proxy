@@ -10,7 +10,7 @@
    主力机场 20块200g一个月(包年差不多170一年 优惠码期间)。(2022.11.27最近一直在被打老要重置订阅 已修复暂时没有改问题了) 最近用着还行 暂时主用  
    优惠码：7PUOKRY5P8 The offer will expire on Nov 30th, 2023.
    
-## [xfss](https://xf.gl/#/register?code=wvZkUq0Y)
+## [xfss](https://xf.gl/#/register?code=wvZkUq0Y](https://xfltd.org/#/register?code=wvZkUq0Y)
     临时机场防失联。10块120g流量不限时防失联不错。现在稳定性比一元机场好很多。暂时当主备用
     
 ## [一元机场](https://xn--4gq62f52gdss.com/#/register?code=7poWhiDJ)
@@ -18,7 +18,7 @@
 
 # 备用机场
  
-## [xfss](https://xf.gl/#/register?code=wvZkUq0Y) 是真的便宜，我买的是10块120g流量不限时间。试用可以试试1块钱17g流量 或者 7块150g流量
+## [xfss](https://xfltd.org/#/register?code=wvZkUq0Y) 是真的便宜，我买的是10块120g流量不限时间。试用可以试试1块钱17g流量 或者 7块150g流量
 
 # 我使用过的机场
 
