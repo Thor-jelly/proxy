@@ -6,23 +6,23 @@
 
 # 正在用的机场
 
-## [西部数据](https://fuqing.cz/aff.php?aff=527) 
+## [西部数据](https://fuqing.ch/aff.php?aff=527) 
    主力机场 20块200g一个月(包年差不多170一年 优惠码期间)。(2022.11.27最近一直在被打老要重置订阅 已修复暂时没有改问题了) 最近用着还行 暂时主用  
    优惠码：MRR5H9CYAO  The offer will expire on Jan 31th, 2024.
    
-## [xfss](https://xfltd.org/#/register?code=wvZkUq0Y)
+## [xfss](https://xfltd.org/register?aff=wvZkUq0Y)
     临时机场防失联。10块120g流量不限时防失联不错。现在稳定性比一元机场好很多。暂时当主备用
     
-## [一元机场](https://xn--4gq62f52gdss.com/#/register?code=7poWhiDJ)
+## [一元机场](https://xn--4gq62f52gdss.art/#/register?code=7poWhiDJ)
    11块一年。每月500g流量 备用机场 暂不推荐了 500g变成50g了。网络最近也很卡
 
 # 备用机场
  
-## [xfss](https://xfltd.org/#/register?code=wvZkUq0Y) 是真的便宜，我买的是10块120g流量不限时间。试用可以试试1块钱17g流量 或者 7块150g流量
+## [xfss](https://xfltd.org/register?aff=wvZkUq0Y) 是真的便宜，我买的是10块120g流量不限时间。试用可以试试1块钱17g流量 或者 7块150g流量
 
 # 我使用过的机场
 
-## [一元机场](https://xn--4gq62f52gdss.com/#/register?code=7poWhiDJ) 11块一年。每月500g流量 备用机场 11块一年。每月500g流量 备用机场 暂不推荐了 500g变成50g了。网络最近也很卡
+## [一元机场](https://xn--4gq62f52gdss.art/#/register?code=7poWhiDJ) 11块一年。每月500g流量 备用机场 11块一年。每月500g流量 备用机场 暂不推荐了 500g变成50g了。网络最近也很卡
 
 ## ~~[速蛙](https://i.9cvbx.top/hVl4) v1 一年57一个月15g流量 需要抢 年付备用很不错  已跑路~~
 
