@@ -1,6 +1,6 @@
 [TOC]
 
-# 我的合租 需要+Q 745661590（备注司机才会加）+TG [ThorJelly](https://t.me/ThorJelly) [TG频道](https://t.me/dongdongwushare)
+# 我的合租+TG [ThorJelly](https://t.me/ThorJelly) [TG频道](https://t.me/dongdongwushare)
 
 ## ~~microsoft 365(office 365)合租 45一年。已满~~
 
