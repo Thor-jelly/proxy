@@ -8,7 +8,7 @@
 
 ## [西部数据](https://fuqing.ch/aff.php?aff=527) 
    主力机场 20块200g一个月(包年差不多170一年 优惠码期间)。(2022.11.27最近一直在被打老要重置订阅 已修复暂时没有改问题了) 最近用着还行 暂时主用  
-   优惠码：MRR5H9CYAO  The offer will expire on Jan 31th, 2024.
+   优惠码: WD-BLUE。The offer will expire on Sep 30th, 2024.
    
 ## [xfss](https://xfltd.org/register?aff=wvZkUq0Y)
     临时机场防失联。10块120g流量不限时防失联不错。现在稳定性比一元机场好很多。暂时当主备用
