@@ -11,7 +11,8 @@
    优惠码: WD-BLUE。The offer will expire on Sep 30th, 2024.
    
 ## [xfss](https://xfltd.org/register?aff=wvZkUq0Y)
-    临时机场防失联。10块120g流量不限时防失联不错。现在稳定性比一元机场好很多。暂时当主备用
+   临时机场防失联。10块120g流量不限时防失联不错。现在稳定性比一元机场好很多。暂时当主备用
+   88折优惠码： 中秋团圆.0910-0917 18:00仅可使用一次，年付不可用，1元套餐不可用。
     
 ## [一元机场](https://xn--4gq62f52gdss.art/#/register?code=7poWhiDJ)
    11块一年。每月500g流量 备用机场 暂不推荐了 500g变成50g了。网络最近也很卡
