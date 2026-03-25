@@ -23,7 +23,7 @@
 
 # 我使用过的机场
 
-## [一元机场](https://xn--4gq62f52gdss.art/#/register?code=7poWhiDJ) 11块一年。每月500g流量 备用机场 11块一年。每月500g流量 备用机场 暂不推荐了 500g变成50g了。网络最近也很卡
+## [一元机场](https://xn--4gq62f52gdss.art/#/register?code=7poWhiDJ) 12块一年。每月500g流量 备用机场
 
 ## ~~[速蛙](https://i.9cvbx.top/hVl4) v1 一年57一个月15g流量 需要抢 年付备用很不错  已跑路~~
 
