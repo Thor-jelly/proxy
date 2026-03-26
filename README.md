@@ -5,10 +5,7 @@
 ## ~~microsoft 365(office 365)合租 45一年。已满~~
 
 ## 一个免费的ai api调用
-[注册送200刀，签到每天看运气
-当前情况：
-- ✅ 支持 GPT-5 / GPT-5.2 GPT-5.4等openai模型
-- 注意：若报错，失效，立即到频道联系Faker修复！](https://api.fakerclaw.online/register?aff=LfDY)
+[注册送200刀，签到每天看运气 ✅ 支持 GPT-5 / GPT-5.2 GPT-5.4等openai模型](https://api.fakerclaw.online/register?aff=LfDY)
 
 # 正在用的机场
 
