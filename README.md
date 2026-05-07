@@ -1,4 +1,4 @@
-<img width="348" height="124" alt="image" src="https://github.com/user-attachments/assets/465308e4-5e90-435a-86e4-e45e407f29e1" />[TOC]
+[TOC]
 
 # 我的合租+TG [ThorJelly](https://t.me/ThorJelly) [TG频道](https://t.me/dongdongwushare)
 
