@@ -1,4 +1,4 @@
-[TOC]
+<img width="348" height="124" alt="image" src="https://github.com/user-attachments/assets/465308e4-5e90-435a-86e4-e45e407f29e1" />[TOC]
 
 # 我的合租+TG [ThorJelly](https://t.me/ThorJelly) [TG频道](https://t.me/dongdongwushare)
 
@@ -11,7 +11,7 @@
 
 ## [西部数据](https://wd-gold.com/aff.php?aff=527) 
    主力机场 20块200g一个月(包年差不多170一年 优惠码期间)。(2022.11.27最近一直在被打老要重置订阅 已修复暂时没有改问题了) 最近用着还行 暂时主用  
-   优惠码: WD-TURBO
+   优惠码: WD-CLOUD
    
 ## [xfss](https://xfltd.org/#/register?code=wvZkUq0Y)
    临时机场防失联。10块120g流量不限时防失联不错。现在稳定性比一元机场好很多。暂时当主备用  
