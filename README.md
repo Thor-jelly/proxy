@@ -2,7 +2,7 @@
 
 # 我的合租+TG [ThorJelly](https://t.me/ThorJelly) [TG频道](https://t.me/dongdongwushare)
 
-## ~~microsoft 365(office 365)合租 45一年。已满~~
+## ~~microsoft 365(office 365)合租 50一年。已满~~
 
 
 # 正在用的机场
