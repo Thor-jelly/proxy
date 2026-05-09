@@ -4,6 +4,8 @@
 
 ## ~~microsoft 365(office 365)合租 50一年。已满~~
 
+[可以免费使用的大模型](https://github.com/Thor-jelly/AIRelayTest)
+
 # 客户端推荐
 我使用的  
 iOS：~~qx(有些机场不支持了)~~ loon  
