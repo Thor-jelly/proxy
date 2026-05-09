@@ -6,7 +6,7 @@
 
 # 客户端推荐
 我使用的
-iOS：~~qx(有些机场不支持了)~~ loon。
+iOS：~~qx(有些机场不支持了)~~ loon  
 Mac：surge(有些机场不支持了)，在等loon的Mac版本 。不支持的机场使用的是clash for verge  
 Android/HarmonyOS：clash meta for android  
 Win：clash for verge  
