@@ -21,7 +21,7 @@ Win：clash for verge
 
 ## [良心云](https://xn--9kqz23b19z.com/#/register?code=6qDjfSqA)
    备用机场 2块100G一个月 或者 21块 1000G流量，我买的永久流量 当备用  
-   优惠时间：5月19日 - 5月22日23:59  使用优惠码：爱你如初LXY
+   全场七折 优惠时间：5月19日 - 5月22日23:59  使用优惠码：爱你如初LXY
 
 ## [顶级机场](https://xn--mes358a9urctx.com/#/register?code=JLHENpnG)
    备用机场 16块一年每月200G 或者 12块 200G流量，我买的永久流量 当备用  
