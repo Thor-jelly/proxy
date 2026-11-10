@@ -22,7 +22,7 @@ Win：clash for verge
 
 ## [良心云](https://xn--9kqz23b19z.com/#/register?code=6qDjfSqA)
    备用机场 月付2 100G每月 或者 21块 1000G流量，我买的永久流量 当备用  
-   全场七折 优惠时间：9月23日 - 9月27日23:59  使用优惠码：中秋节LXY
+   活动时间：11.6日至11.13日23:59  活动力度：全场七五折  优惠码：双十一LXY
 
 ## [顶级机场](https://xn--mes358a9urctx.com/#/register?code=JLHENpnG)
    备用机场 年付16块 200G每月 或者 12块 200G流量，我买的永久流量 当备用  
